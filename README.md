@@ -1,2 +1,2 @@
 # hcs
-Hi
+Hi, thank you for being there!
